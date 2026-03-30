@@ -2,7 +2,7 @@
 
 ### ✅ **Do’s**
 
-* **Pause before you post**
+* **Pause before you post something**
   A quick second thought can save you from posting something you might regret later.
 
 * **Show what you’d be okay being known for**
